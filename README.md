@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @amalampz
 - 👀 I’m interested in BLOCKCHAIN
-- 🌱 I’m currently learning ACCOUNTING AND BUSINESS MANAGEMENT
+- 🌱 I’m currently learning ACCAT
 - 💞️ I’m looking to collaborate on PROJECT
 - 📫 reach me HERE ...
 
